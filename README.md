@@ -1,2 +1,3 @@
 # understanding-cats.github.io
-Team website
+
+Cursed cat image c/o [this site](http://www.funfacemaster.com/fun-face/a-cute-cat/khjgf).
